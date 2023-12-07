@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Zeenat a professional data analyst 
-- 💞️ I’m looking to collaborate on with like minds in data Analysis. 
+- 💞️ I look forward to collaborate with like minds in data Analysis. 
 - 📫 You can reach me on WhatsApp +2347080769222
 
 - 
